@@ -1,1 +1,1 @@
-# Cooltech
+# Sammlung von interessanten Ressourcen
